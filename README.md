@@ -21,7 +21,7 @@ Le roi ne tarda pas à revenir prier.
 > Ô mes dieux ! Je ne peux toujours pas mener la guerre et je n'ai presque plus de fer !
 
 Encore une fois une voix le fit se renverser de frayeur.
-> Utilises encore ton fer pour de belles pelles et pioches et offres-les à ton peuple, qu'il jardine tout son aise.
+> Utilises encore ton fer pour de belles pioches et offres-les à ton peuple, qu'il jardine tout son aise.
 
 Le roi s'exécuta et le pays ne tarda pas à être gras et replet.
 
@@ -32,7 +32,7 @@ Un peu assourdi, le roi revint s'agenouiller devant ses dieux.
 > Ô mes dieux ! Mon peuple qui m'aime désormais fait envie à mes voisins et je n'ai plus d'armes pour me défendre !
 
 Il fini les quatre fers en l'air lorsque Anthée lui répondit d'un ton un peu agacé.
-> Dis à ton peuple de partager sa veine avec les peuples voisins ! Et continue à donner à tous pelles et bêches.
+> Dis à ton peuple de partager sa veine avec les peuples voisins ! Et continue à donner à tous des outils pour biner.
 
 Complètement sonné, le roi fit de son mieux pour satisfaire la demande.
 
@@ -43,7 +43,7 @@ Le roi accouru supplier devant le temple.
 > Ô dieux adorés ! Le voisin va venir m'envahir ! Je suis aux abois !
 
 Le roi roula par terre lorsque la déesse s'exprima.
-> Ton voisin ne viendra pas car ton peuple gaillard te défendra à coup de pioches et de bêches.
+> Ton voisin ne viendra pas car ton peuple gaillard te défendra avec toutes les outils qu'il a.
 
 Devenu à moitié fou, le roi osa faire une objection.
 > Mais ma femme veut robes, diamant et un beau jardin fleuri comme celui de sa fille !
