@@ -49,7 +49,7 @@ Le roi roula par terre lorsque les paroles divines tonnèrent à travers le ciel
 Devenu à moitié fou, le roi osa faire une objection.
 > Mais ma femme veut robes, diamant et un beau jardin fleuri comme celui de sa fille !
 
-Il était encore à genoux lorsque la déesse lui chuchota :
+Il était encore à genoux lorsqu'un chuchotement de Ploutos lui parvint à l'oreille :
 > Tu n'as plus qu'à lever des impôts sur les potagers ...
 
 Avec l'argent le roi s'offrit un beau voyage avec sa femme et renvoya son gendre fleurir le château.
