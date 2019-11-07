@@ -9,7 +9,7 @@ Inquiet, le roi s'en alla faire une prière.
 
 > Ô mes dieux préférés que puis-je faire pour éviter la débâcle ? Mes soldats sont débiles, mes coffres vides et mon peuple fainéant !
 
-Tout croyant qu'il était il tomba à la renverse lorsque un des dieux lui répondit.
+Tout croyant qu'il était il tomba à la renverse lorsqu'un dieu lui répondit.
 > Donnes à tes plus fidèles soldats pelles et bêches plutôt que lames et lances, et offres la main de ta fille à celui qui fera les plus belles fleurs.
 
 Un peu chamboulé, le roi suivi les conseils du dieu et un mariage fut bientôt prononcé.
