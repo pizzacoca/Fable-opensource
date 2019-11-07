@@ -31,8 +31,8 @@ Un peu assourdi, le roi revint s'agenouiller devant ses dieux.
 
 > Ô mes dieux ! Mon peuple qui m'aime désormais fait envie à mes voisins et je n'ai plus d'armes pour me défendre !
 
-Il fini les quatre fers en l'air lorsque Anthée lui répondit d'un ton un peu agacé.
-> Dis à ton peuple de partager sa veine avec les peuples voisins ! Et continue à donner à tous des outils pour biner.
+Il fini les quatre fers en l'air lorsqu'Anthée lui répondit d'un ton un peu agacé.
+> Dis à ton peuple de partager sa veine avec les peuples voisins ! Et continue à donner à tous de quoi bien biner.
 
 Complètement sonné, le roi fit de son mieux pour satisfaire la demande.
 
@@ -51,7 +51,7 @@ Devenu à moitié fou, le roi osa faire une objection.
 Il était encore à genoux lorsque la déesse lui chuchota :
 > Tu n'as plus qu'à lever des impôts sur les potagers ...
 
-Avec l'argent le roi s'offrit un beau voyage avec sa femme et envoya son gendre fleurir le château.
+Avec l'argent le roi s'offrit un beau voyage avec sa femme et renvoya son gendre fleurir le château.
 
 ### Morale de l'histoire :
 Jardinier, tes outils sont offerts mais n'oublies jamais à qui appartient la terre que tu cultives.
