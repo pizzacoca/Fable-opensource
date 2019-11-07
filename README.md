@@ -42,13 +42,13 @@ Le roi accouru supplier devant le temple.
 
 > Ô dieux adorés ! Le voisin va venir m'envahir ! Je suis aux abois !
 
-Le roi roula par terre lorsque la déesse s'exprima.
+Le roi roula par terre lorsque les paroles divines tonnèrent à travers le ciel.
 > Ton voisin ne viendra pas car ton peuple gaillard te défendra avec toutes les outils qu'il a.
 
 Devenu à moitié fou, le roi osa faire une objection.
 > Mais ma femme veut robes, diamant et un beau jardin fleuri comme celui de sa fille !
 
-Il tomba à genoux lorsque le dieu répondit doucement.
+Il était encore à genoux lorsque la déesse lui chuchota :
 > Tu n'as plus qu'à lever des impôts sur les potagers ...
 
 Avec l'argent le roi s'offrit un beau voyage avec sa femme et envoya son gendre fleurir le château.
