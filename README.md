@@ -41,7 +41,7 @@ Complètement sonné, le roi fit de son mieux pour satisfaire la demande.
 
 Le roi accouru supplier devant le temple.
 
-> Ô dieux adorés ! Le voisin va venir m'envahir ! Je suis aux abois !
+> Ô dieux adorés ! Le voisin va venir ! Je suis aux abois !
 
 Le roi roula par terre lorsque les paroles divines tonnèrent à travers le ciel.
 > Ton voisin ne viendra pas car ton peuple gaillard te défendra avec toutes les outils qu'il a.
