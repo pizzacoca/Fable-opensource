@@ -1,7 +1,8 @@
 # Fable-opensource
 
 Il était une fois un roi bien malheureux.
-Ses soldats était bien maigres et ses armureries fort peu fournies.
+
+Ses soldats était maigres et ses armureries fort peu fournies.
 
 > Tu es la risée de tes voisins, Gros peureux ! Se moquait sa femme. Bientôt j'aurais un nouveau mari !
 
